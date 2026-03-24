@@ -76,12 +76,6 @@ I focus on:
 
 ---
 
-## 🤝 Let's Connect
-
-- 💼 LinkedIn: (add your link)
-- 📧 Email: (add your email)
-
----
 
 ## ⚡ Fun Fact
 
